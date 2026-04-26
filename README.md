@@ -7,7 +7,11 @@
 <br>
 
 <p align="justify">
-  Aku tertarik dalam desain, fotografi, coding (backend), dan hardware PC. Saat ini aku masih terus belajar dan mengembangkan kemampuan, dan aku selalu terbuka terhadap saran maupun kritik untuk bisaterus berkembang. Desain visual dan fotografi dua hal yang aku sukai, terutama ketika bisa digabungkan dengan dunia digital. Aku juga akan membagikan berbagai hasil karya dan editanku diakun media sosialku. Aku selalu terbuka terhadap masukan apa pun yang bisa membantu meningkatkan skill-ku, baik dalam desain, coding, maupun hal lainnya. 💕
+  Desain, fotografi, dan coding (backend) jadi hal yang lagi aku dalami dan terus aku kembangkan. Aku masih dalam proses belajar, jadi aku selalu terbuka sama saran maupun kritik yang bisa bantu aku berkembang lebih jauh.
+
+Dua hal yang paling aku nikmati adalah desain visual dan fotografi, apalagi kalau bisa digabung dengan dunia digital. Hasil karya dan editanku juga bakal aku bagikan di media sosial.
+
+Aku senang kalau bisa dapat masukan apa pun yang bisa bantu ningkatin skill-ku, baik di desain, coding, atau hal lain yang lagi aku pelajari. 💕
 
 </p>
   
