@@ -7,9 +7,8 @@
 <br>
 
 <p align="justify">
-  Desain, fotografi, dan coding (backend) jadi hal yang lagi aku dalami dan terus aku kembangkan. Aku masih dalam proses belajar, jadi aku selalu terbuka sama saran maupun kritik yang bisa bantu aku berkembang lebih jauh.
-
-Dua hal yang paling aku nikmati adalah desain visual dan fotografi, apalagi kalau bisa digabung dengan dunia digital. Hasil karya dan editanku juga bakal aku bagikan di media sosial.
+Yahalo, Verence di sini. Saat ini aku sedang banyak mencoba dan mendalami hal-hal di dunia digital, terutama di bidang desain, fotografi, dan coding, khususnya backend. Masih dalam proses belajar, jadi belum bisa dibilang sepuh. 
+    Tapi tetap sering eksplor, coba hal baru, dan pelan-pelan ngembangin kemampuan dari pengalaman yang didapat. Tetap terbuka sama saran dan kritik yang bisa bantu berkembang.
 
 Aku senang kalau bisa dapat masukan apa pun yang bisa bantu ningkatin skill-ku, baik di desain, coding, atau hal lain yang lagi aku pelajari. 💕
 
